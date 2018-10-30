@@ -1,2 +1,2 @@
 # iosbltd
-In the begging there was water &amp; air.
+In the beggining there was water &amp; air.
